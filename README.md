@@ -1,1 +1,1 @@
-# Web-application-connection-contact-and-negociation-between-nfluencers-and-brands
+# Web-application-connection-contact-and-negociation-between-influencers-and-brands
